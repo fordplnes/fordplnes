@@ -13,7 +13,7 @@ private message me for an actual convo, i don't talk publically with randoms.
 gf fandom iwec, i don't like most of you.
   
 <p align="center"> 
-keep your ships far away from me, thanks. 
+keep your ships far away from me, thanks. i don't like discussing them.
 
 <p align="center"> also, i don't roleplay, so don't expect me to act in character. i block bill cosplayers for fun.
 </p>
