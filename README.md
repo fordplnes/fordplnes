@@ -4,7 +4,7 @@
 ‎ 
 ‎ 
 <p align="center">
-private message me for an actual convo, i don't talk publically with randoms.
+private message me for an actual conversation, i don't talk publically with randoms.
 ‎ <p align="center">
   <img width="100" height="100" src="https://i.imgur.com/OEXd8Oi.gif">
 </p>
