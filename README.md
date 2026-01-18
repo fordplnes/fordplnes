@@ -10,7 +10,7 @@ private message me for an actual convo, i don't talk publically with randoms.
 </p>
 
 <p align="center">
-gf fandom iwec, most of you are genuinely weird.
+gf fandom iwec, most of you are genuinely weird and think ford's abuse is funny/deserved <\3
   
 <p align="center"> 
 keep your ships far away from me, thanks. i don't like discussing them.
