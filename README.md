@@ -10,10 +10,10 @@ private message me for an actual convo, i don't talk publically with randoms.
 </p>
 
 <p align="center">
-gf fandom iwec, most of you are genuinely weird and think victim blaming ford + shipping him w/ his abuser is okay. <\3
+gf fandom iwec, most of you are genuinely weird and think victim blaming ford + shipping him with his abuser is okay. <\3
   
 <p align="center"> 
 keep your ships far away from me, thanks. i don't like hearing about most of them.
 
-<p align="center"> i don't roleplay, so don't expect me to act in character. i block bill cosplayers for fun.
+<p align="center"> i don't roleplay, so don't expect me to act in character, thank you. i block bill cosplayers for fun.
 </p>
