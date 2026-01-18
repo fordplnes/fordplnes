@@ -10,7 +10,7 @@ private message me for an actual convo, i don't talk publically with randoms.
 </p>
 
 <p align="center">
-gf fandom iwec, i don't like most of you.
+gf fandom iwec, most of you are genuinely weird.
   
 <p align="center"> 
 keep your ships far away from me, thanks. i don't like discussing them.
