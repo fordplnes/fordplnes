@@ -15,5 +15,7 @@ gf fandom iwec, most of you are genuinely weird and think victim blaming ford + 
 <p align="center"> 
 keep your ships far away from me, thanks. i don't like hearing about most of them.
 
-<p align="center"> i don't roleplay, so please don't expect me to act in character, thank you. i block bill cosplayers for fun.
+<p align="center"> i don't roleplay, so please don't expect me to act in character, thank you.
 </p>
+
+<p align="center"> i block any bill cosplayers on sight. </p>
