@@ -11,11 +11,10 @@ private message me for an actual conversation, i don't talk publically with rand
 
 <p align="center">
 gf fandom iwec, most of you are genuinely weird and think victim blaming ford + shipping him with his abuser is okay. <\3
-  
-<p align="center"> 
-keep your ships far away from me, thanks. i don't like hearing about most of them.
 
 <p align="center"> i don't roleplay, so please don't expect me to act in character, thank you.
 </p>
+
+<p align="center"> fuck off if you make ' i saved the town ' jokes. we don't joke about abusive power imbalances around here.
 
 <p align="center"> i block any bill cosplayers on sight. </p>
