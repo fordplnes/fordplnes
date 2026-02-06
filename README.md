@@ -15,6 +15,6 @@ gf fandom iwec, most of you are genuinely weird and think victim blaming ford + 
 <p align="center"> i don't roleplay, so please don't expect me to act in character, thank you.
 </p>
 
-<p align="center"> fuck off if you make ' i saved the town ' jokes. we don't joke about abusive power imbalances around here.
+<p align="center"> fuck off if you make ' i saved the town ' jokes. we don't joke about abusive power imbalances around here + it's unfunny.
 
 <p align="center"> i block any bill cosplayers on sight. </p>
