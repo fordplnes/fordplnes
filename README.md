@@ -10,7 +10,7 @@ private message me if we already know each other. i don't respond to strangers o
 </p>
 
 <p align="center">
-gf fandom do not interact. especially bill cosplayers. there are too many weirdos on here, and i don't feel like dealing with any of it.
+gf fandom do not interact, especially bill cosplayers. there are too many weirdos on here, and i don't feel like dealing with any of it.
 
 <p align="center">
 my chat is turned off for people who aren't in my friends list, so if you're trying to talk to me and i don't respond, that's why.
