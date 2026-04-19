@@ -4,17 +4,15 @@
 ‎ 
 ‎ 
 <p align="center">
-private message me for an actual conversation, i don't talk publically with randoms.
+private message me if we already know each other. i don't respond to strangers on this game.
 ‎ <p align="center">
   <img width="100" height="100" src="https://i.imgur.com/OEXd8Oi.gif">
 </p>
 
 <p align="center">
-gf fandom iwec, most of you are genuinely weird and think victim blaming ford + shipping him with his abuser is okay. <\3
+gf fandom do not interact. especially bill cosplayers. there are too many weirdos on here, and i don't feel like dealing with any of it.
 
-<p align="center"> i don't roleplay, so please don't expect me to act in character, thank you.
-</p>
+<p align="center">
+my chat is turned off for people who aren't in my friends list, so if you're trying to talk to me and i don't respond, that's why.
 
-<p align="center"> fuck off if you make ' i saved the town ' jokes. we don't joke about abusive power imbalances around here + it's unfunny.
 
-<p align="center"> i block any bill cosplayers on sight. </p>
