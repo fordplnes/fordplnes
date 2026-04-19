@@ -6,7 +6,7 @@
 <p align="center">
 private message me if we already know each other. i don't respond to strangers on this weird pony game.
 ‎ <p align="center">
-  <img width="100" height="100" src="https://i.imgur.com/OEXd8Oi.gif">
+  <img width="99" height="56" src="https://i.imgur.com/OEXd8Oi.gif">
 </p>
 
 <p align="center">
