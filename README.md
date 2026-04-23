@@ -4,7 +4,7 @@
 ‎ 
 ‎ 
 <p align="center">
-private message me if we already know each other. i'm always open to chat with friends, but i don't respond to strangers on this weird pony game.
+private message me if we already know each other. i'm always open to chat with friends, but i don't respond to strangers for personal reasons.
 ‎ <p align="center">
   <img width="99" height="56" src="https://i.imgur.com/OEXd8Oi.gif">
 </p>
