@@ -12,6 +12,7 @@ private message me if we already know each other. i'm always open to chat with f
 <p align="center">
 gf fandom do not interact, especially bill cosplayers/kins. most of you make me incredibly uncomfortable, and i don't want to deal with any of it.
 
+
 <p align="center">
 my chat is turned off for people who aren't on my friends list, so if you're trying to talk to me and i don't respond, that's the reason why.
 
